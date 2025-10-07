@@ -1,0 +1,2 @@
+# Sammy
+Steal A Brainrot
